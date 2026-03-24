@@ -8,7 +8,7 @@ And for good reason. It delivers what most red strains promise but rarely delive
 
 Over **15 million Americans** use kratom regularly. (Source: American Kratom Association, 2023)
 
-> ### 🛒 [Order Lab Tested Red Borneo Kratom from Jack Botanicals](https://reviewscode.com/jb-shop)
+>  [Order Lab Tested Red Borneo Kratom from Jack Botanicals](https://reviewscode.com/jb-shop)
 > 
 > **AKA Verified | 9+ Lab Tests/Batch | Save 30% "Jack30"**
 
@@ -38,7 +38,7 @@ Here's the full breakdown.
 
 ---
 
-> ### 🌿 [Buy Premium Red Borneo Kratom from Jack Botanicals](https://reviewscode.com/jb-shop)
+>  [Buy Premium Red Borneo Kratom from Jack Botanicals](https://reviewscode.com/jb-shop)
 > 
 > **AKA Certified | 9+ Lab Tests/Batch | 30% off "Jack30"**
 
